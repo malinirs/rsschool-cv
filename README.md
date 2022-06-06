@@ -1,1 +1,1 @@
-# rsschool-cv
+https://malinirs.github.io/rsschool-cv/cv
